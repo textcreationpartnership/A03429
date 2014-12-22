@@ -43,7 +43,7 @@ Octob. 3. 1639.Imprimatur Cantabrigiae per Rogerum Daniel.Ra. Brownrigg Procan.S
 1. To my worthy & learned frien•W. H. Eſquire, upon his divine meditation and elegant explanation of the Eighth Pſalme.
 
 1. To his ever honoured friend, William Hodgſon Eſquire, on his contemplations on the Eighth Pſalme.
-The DIVINE COSMOGRAPHER; or, A brief Survey of the whole world, delineated in a tractate on the VIII
+
 1. PSAL. VIII. To the chief muſician upon Gittith, A pſalme of David.
 
 #####Body#####
